@@ -58,6 +58,16 @@ Git • GitHub
 
 ---
 
+## 🌸 Fun Section
+Check out this little deer! 🦌
+
+![Running Deer](## 🌸 Fun Section
+Check out this little deer! 🦌
+
+![Running Deer](https://i.pinimg.com/originals/ae/a2/90/aea2901e54ada49061bc80635a208a65.gif)
+
+---
+
 ## 📫 Connect With Me
 
 - Email: shehanall99@gmail.com
